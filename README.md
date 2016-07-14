@@ -1,0 +1,2 @@
+# akimtrafosu
+akım trafosu     
